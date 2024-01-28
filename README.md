@@ -1,1 +1,1 @@
-This Project not completed yet
+This Project is not yet completed
